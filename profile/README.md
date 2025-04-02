@@ -1,6 +1,7 @@
 # Rajdhani Mandir: A Sacred Place of Worship  
 
 [**Rajdhani Mandir**](https://vocal.media/history/unveiling-the-secrets-of-rajdhani-mandir) is a famous temple. It is located in the heart of the city. Many devotees visit this temple every day. They come here to pray and seek blessings.
+
 [**FULL ARTICLE CLICK HERE !!**](https://vocal.media/history/unveiling-the-secrets-of-rajdhani-mandir)
 
 ## History of Rajdhani Mandir  
